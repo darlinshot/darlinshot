@@ -5,7 +5,8 @@
 ![](https://media.discordapp.net/attachments/1020304614228234252/1168510841604296745/1696581375842.gif?ex=6ab1bcc6&is=6ab06b46&hm=69c47101821555ff955e57bc00c62f878dbf7cb82d13fa843261660be7c7e9fd&)
 <br>
 It's a me, dboi.
-![PFP Source](https://www.pixiv.net/en/artworks/109190868)
+<br>
+PFP by 雷夜 on Pixiv: <https://www.pixiv.net/en/artworks/109190868>
 
 ---
 General skills:</br>
