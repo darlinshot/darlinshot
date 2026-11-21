@@ -1,5 +1,3 @@
-![](https://i.redd.it/lgoso6qpjgwh1.gif)
-<br>
 It's a me, dboi.
 <br>
 PFP by 雷夜 on Pixiv: <https://www.pixiv.net/en/artworks/109190868>
@@ -24,3 +22,5 @@ Currently learning:</br>
 ---
 # 💰 You can help me by Donating
 [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me/HPMTIEN) 
+<br>
+![](https://i.redd.it/lgoso6qpjgwh1.gif)
